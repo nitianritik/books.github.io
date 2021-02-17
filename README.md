@@ -1,1 +1,0 @@
-# manit.github.io
